@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @01CBS01
+- 👀 I’m interested in learning how to code  
+- 🌱 I’m currently learning the basics of proggraming
+- 📫 How to reach me via email - 01madfox01@gmail.com
+----------- im taking any advise TNX------------ 
